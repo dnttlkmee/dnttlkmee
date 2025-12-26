@@ -1,6 +1,6 @@
 ### Hey there! <img src="https://emojis.slackmojis.com/emojis/images/1536351075/4594/blob-wave.gif" width="25"/>
 
-I’m [**Miraya**](https://www.miraya.tech), a design engineer based in Germany.
+I’m [**Vitalii**](https://www.vitaliir.com), a design engineer based in Russia.
 
 I design and build whatever I can imagine.
 
